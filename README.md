@@ -1,4 +1,5 @@
-⠀<img width="388" height="27" alt="image" src="https://github.com/user-attachments/assets/d09bc6b2-ec22-450a-9959-a6775a1950dc" /> <img width="388" height="27" alt="image" src="https://github.com/user-attachments/assets/3677336b-4491-4fed-9930-d4cea81c090e" />
+⠀<img width="400" height="27" alt="image" src="https://github.com/user-attachments/assets/c717e264-b5b6-45cb-bc3b-2dcaa1127d95" />
+<img width="400" height="27" alt="image" src="https://github.com/user-attachments/assets/db6c8723-b9e0-47b5-8abb-c6b38dbbf358" />
 
 
 
@@ -6,7 +7,8 @@
 ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀⠀⠀ $\textcolor{#5a423b}{\text{Hope the boss'll get us some pizza.}}$
 
 
-<img src="https://www2.lunapic.com/editor/working/177115280515724500?21378"/>⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/a00caedc-be7e-4e27-9e55-46dae678a6b4" />
+<img src="https://www2.lunapic.com/editor/working/177115280515724500?21378"/>⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="270" height="270" alt="image" src="https://github.com/user-attachments/assets/fe97f174-ad96-449f-abe9-d7cbb1d533c5" />
+
 
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/99af24e1-01ed-46b9-b766-079adcaa2c52" />
