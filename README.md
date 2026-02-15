@@ -1,1 +1,1 @@
-$\textcolor{#280b02}{\text{gay}}$
+$\textcolor{#5a423b}{\text{gay}}$
