@@ -6,8 +6,7 @@
 ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀⠀⠀ $\textcolor{#5a423b}{\text{Hope the boss'll get us some pizza.}}$
 
 
-<img src="https://www2.lunapic.com/editor/working/177115280515724500?21378"/>
- ⠀⠀⠀⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀<img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/a00caedc-be7e-4e27-9e55-46dae678a6b4" />
+<img src="https://www2.lunapic.com/editor/working/177115280515724500?21378"/>⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/a00caedc-be7e-4e27-9e55-46dae678a6b4" />
 
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/99af24e1-01ed-46b9-b766-079adcaa2c52" />
